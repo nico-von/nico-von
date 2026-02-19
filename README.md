@@ -1,6 +1,6 @@
 # Hello, world
 
-I am **nico-von**. I usually build for the purposes of automation, creating things that make it easier for me to carry out my daily tasks.
+I am **nico-von**. I usually build for the purposes of fun.
 > **sk, @ ye sh fd.**
 
 ### Use my Referral Codes to get exclusive discounts
